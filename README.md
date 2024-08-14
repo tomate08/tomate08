@@ -11,4 +11,4 @@ mais conhecido como tomate
 
 @erick.hann.santos@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/Wu0TNpTWqooAAAAC/evil-laugh.gif)
+![](https://tenor.com/pt-BR/view/cat-high-five-whats-up-gif-21373743)
